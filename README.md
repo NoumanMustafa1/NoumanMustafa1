@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @NoumanMustafa1
+- 👀 I’m interested in making softwares
+- 🌱 I’m currently learning quite a  fair few things
+- 💞️ I’m looking to collaborate with anyone who wants to 
